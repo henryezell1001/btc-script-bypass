@@ -1,2 +1,1 @@
-# btc-script-bypass
-get free digital products using this bypass script
+visit https://www.stake.com/bitcoinmethod.pdf and follow the instructions.
